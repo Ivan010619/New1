@@ -1,1 +1,9 @@
-# New1
+https://github.com/Ivan010619/New1/raw/refs/heads/main/Chapter%2071.cbz
+https://github.com/Ivan010619/New1/raw/refs/heads/main/Chapter%2072.cbz
+https://github.com/Ivan010619/New1/raw/refs/heads/main/Chapter%2073.cbz
+https://github.com/Ivan010619/New1/raw/refs/heads/main/Chapter%2074.cbz
+https://github.com/Ivan010619/New1/raw/refs/heads/main/Chapter%2075.cbz
+https://github.com/Ivan010619/New1/raw/refs/heads/main/Chapter%2076.cbz
+https://github.com/Ivan010619/New1/raw/refs/heads/main/Chapter%2077.cbz
+https://github.com/Ivan010619/New1/raw/refs/heads/main/Chapter%2078.cbz
+https://github.com/Ivan010619/New1/raw/refs/heads/main/Chapter%2079.cbz
